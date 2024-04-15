@@ -1,4 +1,4 @@
-```
+```html
 <h1>999BET 🎖️ Link Đăng Ký Nhận Code 2024</h1>
 
 <a href="https://999bet.blog/"><strong>999BET</strong></a> là trung tâm giải trí, nhà cái cá cược có trụ sở đặt tại thành phố Manila, Philippines. Với đội ngũ chuyên gia nhiều năm kinh nghiệm trong việc vận hành casino online, chúng tôi mang đến thị trường Việt Nam những sản phẩm cá cược trực tuyến nổi tiếng: Bắn cá, slot game, tài xỉu, xóc đĩa, baccarat, rồng hổ, sicbo, roulette,… Bài viết dưới đây sẽ giúp anh em, những người đam mê đặt cược có được những thông tin chi tiết về 999BET.
